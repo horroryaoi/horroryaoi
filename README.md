@@ -1,10 +1,11 @@
-<img width="360" height="270" alt="17820716847427906033569477112277" src="https://github.com/user-attachments/assets/e38c2db6-85e6-4f65-a950-f0b543f195ef" />
+<img width="640" height="346" alt="17820894450323669382869405230721" src="https://github.com/user-attachments/assets/430a1427-7679-4280-ae5c-7287bd0b47a7" />
 
-$\color{#A52A2A}{\text{void}}$ ‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍ㅤ‍‍‍‍‍‍‍‍‍he , himㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍ †
+
+$\color{#8A9A5B}{\text{void}}$ ‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍ㅤ‍‍‍‍‍‍‍‍‍he , himㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍ †
 ‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍19 y/o ‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍
 
 ㅤㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤ‍‍‍i love low budget horror films
-$\color{#A52A2A}{\text{15 under dni}}$
+$\color{#8A9A5B}{\text{15 under dni}}$
 
 ----
-$\color{#A52A2A}{\text{a}}$[ta](https://bakudekuslime.atabook.org/) 𓈒 re $\color{#A52A2A}{\text{n}}$[try](https://rentry.co/mybrainisrotting) 𓈒 $\color{#A52A2A}{\text{p}}$ rono[ᥙᥒs page](https://en.pronouns.page/@void0991) 
+$\color{#8A9A5B}{\text{a}}$[ta](https://bakudekuslime.atabook.org/) 𓈒 re $\color{#8A9A5B}{\text{n}}$[try](https://rentry.co/mybrainisrotting) 𓈒 $\color{#8A9A5B}{\text{p}}$ rono[ᥙᥒs page](https://en.pronouns.page/@void0991) 
