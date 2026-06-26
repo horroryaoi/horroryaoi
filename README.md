@@ -15,5 +15,6 @@ $\color{#899499}{\text{a}}$[ta](https://mybrainirotting.atabook.org/) 𓈒 re $\
 
 [gerard way #3] whispers: that is NOT Hikaru bro 😭 
 ----
+is this better bro 🤣🤣🤣 doing anything but saying it to my face
 <img width="788" height="789" alt="1305" src="https://github.com/user-attachments/assets/4ad479fc-96dd-4ed4-9772-80e7487c3026" />
 
