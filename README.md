@@ -1,5 +1,5 @@
 
-ㅤㅤㅤ<p align="center">ㅤㅤ[新book](https://mybrainirotting.atabook.org/)
+ㅤㅤㅤ<p align="center">ㅤ[新book](https://mybrainirotting.atabook.org/)
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/mybrainisrotting)
 
 ------
