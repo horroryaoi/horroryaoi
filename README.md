@@ -4,4 +4,5 @@
 
 ------
 
-<p align="center"><img width="99" height="56" alt="17825164175603788870964592968408" src="https://github.com/user-attachments/assets/59963ac3-879a-4742-bbd7-c018b1919958" />
+<p align="center"><img width="97" height="57" alt="17830395636697475527062522202832" src="https://github.com/user-attachments/assets/1a1bc778-6790-4406-ae1c-6503995e80d5" />
+
