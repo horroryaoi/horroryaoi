@@ -9,6 +9,6 @@
 
 hi [papa](https://github.com/slaughterwolf)
 
-<img width="112" height="112" alt="2319" src="https://github.com/user-attachments/assets/804f262a-5466-495d-b088-22f8f144543d" />
+<img src="https://file.garden/akznOd94TlocQojJ/voidpetpet.gif" width="120">
 
 everyone say we love you [wen](https://github.com/AshesOfHerHalo) for this cute ponysona art
