@@ -5,7 +5,7 @@
 ------
 
 
-<div align="center"><img width="1288" height="764" alt="Screenshot_20260707_224635_Roblox" src="https://github.com/user-attachments/assets/8e6d4d48-5aaf-4b5e-8495-5367ec0e5ae7" />
+<div align="center"><img width="1900" height="900" alt="Screenshot_20260707_224635_Roblox" src="https://github.com/user-attachments/assets/8e6d4d48-5aaf-4b5e-8495-5367ec0e5ae7" />
 
 hi [papa](https://github.com/slaughterwolf)
 
