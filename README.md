@@ -3,7 +3,7 @@
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sensitiveptplayersfinnafreakwhentheyseethis)
 
 ------
-<div align="center">16 under dni 
+<div align="center"> i prefer 16 under dni 
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=👀&color=9587A4)
 
