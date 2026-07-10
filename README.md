@@ -1,9 +1,9 @@
 
 ㅤㅤㅤ<p align="center">ㅤ[新book](https://mybrainirotting.atabook.org/)
-ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/voidsbyi)
+ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sensitiveptplayersfinnafreakwhentheyseethis)
 
 ------
-
+<div align="center">16 under dni 
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=👀&color=9587A4)
 
