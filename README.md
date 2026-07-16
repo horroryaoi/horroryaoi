@@ -18,20 +18,21 @@
 ---
 <div align="center"><details> <summary>$\color{#F8C8DC}{\textsf{peanuts}}$ </summary> 
 <sub><a 
-<a href="https://github.com/slaughterwolf" target="_blank">my little nutmeg</a>
-$\color{#875556}{\textsf{ }}$
+       
+<a href="https://github.com/slaughterwolf" target="_blank">wolf ♡</a>
+
 <a href="https://github.com/yubelsrevenge" target="_blank">jaden</a>
 $\color{#875556}{\textsf{ }}$
-<a href="https://github.com/AshesOfHerHalo="_blank">wen</a>
+<a 
+href="https://github.com/scrsonmythighs" target="_blank">rin</a>
 $\color{#875556}{\textsf{ }}$
-<a href="https://github.com/infugue" target="_blank">silsil</a>
+<a
+ href="https://github.com/infugue" target="_blank">silsil</a>
 $\color{#875556}{\textsf{ }}$
 <a href="https://github.com/ikilledthosekidsin1985" target="_blank">willy</a>
 $\color{#875556}{\textsf{ }}$
 <a href="https://github.com/unmannedcamera" target="_blank">roro</a>
-$\color{#875556}{\textsf{ }}$
-  
 
-
+ + wen and all my greenames
 
 
