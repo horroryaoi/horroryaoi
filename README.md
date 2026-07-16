@@ -24,11 +24,11 @@ $\color{#875556}{\textsf{ }}$
 $\color{#875556}{\textsf{ }}$
 <a href="https://github.com/AshesOfHerHalo="_blank">wen</a>
 $\color{#875556}{\textsf{ }}$
-<a href=https://github.com/infugue" target="_blank">silsil</a>
+<a href="https://github.com/infugue" target="_blank">silsil</a>
 $\color{#875556}{\textsf{ }}$
-<a href=https://github.com/ikilledthosekidsin1985" target="_blank">willy</a>
+<a href="https://github.com/ikilledthosekidsin1985" target="_blank">willy</a>
 $\color{#875556}{\textsf{ }}$
-<a href=https://github.com/unmannedcamera" target="_blank">roro</a>
+<a href="https://github.com/unmannedcamera" target="_blank">roro</a>
 $\color{#875556}{\textsf{ }}$
   
 
