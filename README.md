@@ -25,15 +25,15 @@
 <a href="https://github.com/slaughterwolf" target="_blank">wolf ♡</a>
 
 <a href="https://github.com/yubelsrevenge" target="_blank">jaden</a>
-$\color{#875556}{\textsf{ }}$
+$\color{#B5838D}{\textsf{ }}$
 <a 
 href="https://github.com/scrsonmythighs" target="_blank">rin</a>
-$\color{#875556}{\textsf{ }}$
+$\color{#B5838D}{\textsf{ }}$
 <a
  href="https://github.com/infugue" target="_blank">silsil</a>
-$\color{#875556}{\textsf{ }}$
+$\color{#E5989B}{\textsf{ }}$
 <a href="https://github.com/ikilledthosekidsin1985" target="_blank">willy</a>
-$\color{#875556}{\textsf{ }}$
+$\color{#B5838D}{\textsf{ }}$
 <a href="https://github.com/unmannedcamera" target="_blank">roro</a>
 
  PLUS wen and all my greenames
