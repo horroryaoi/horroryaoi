@@ -18,7 +18,7 @@
 ---
 <div align="center"><details> <summary>$\color{#F8C8DC}{\textsf{peanuts}}$ </summary> 
 <sub><a 
-<a href=https://github.com/slaughterwolf" target="_blank">my little nutmeg</a>
+<a href="https://github.com/slaughterwolf" target="_blank">my little nutmeg</a>
 $\color{#875556}{\textsf{ }}$
 <a href="https://github.com/yubelsrevenge" target="_blank">jaden</a>
 $\color{#875556}{\textsf{ }}$
