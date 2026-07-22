@@ -3,23 +3,15 @@
   
 ㅤㅤ<p align="center">ㅤ[新book](https://mybrainirotting.atabook.org/)
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sensitiveptplayersfinnafreakwhentheyseethis)
-ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=👀&color=F8C8DC)
+ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=👀&color=F3E5AB)
 
 <div align="center">
   <table>
   <tr>
     <th>
        
-<img width="250" height="200" alt="17841792356018291728441164130609" src="https://github.com/user-attachments/assets/86ce00d6-d5bb-4716-b9dd-ec5a1c8120f6" /> 
 
-<div align="center">
-  <table>
-  <tr>
-    <th> void 19 gay esfp |
-    mostly offtb w2i 
-    
----
-<div align="center"><details> <summary>$\color{#F8C8DC}{\textsf{peanuts}}$ </summary> 
+<div align="center"><details> <summary>$\color{#F3E5AB}{\textsf{peanuts}}$ </summary> 
 <sub><a 
        
 <a href="https://github.com/slaughterwolf" target="_blank">wolf ♡</a>
