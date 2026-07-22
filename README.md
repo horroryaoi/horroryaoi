@@ -3,7 +3,7 @@
   
 ㅤㅤ<p align="center">ㅤ[新book](https://mybrainirotting.atabook.org/)
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sensitiveptplayersfinnafreakwhentheyseethis)
-ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=👀&color=F3E5AB)
+ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=fans&color=ECFFDC)
 
 <div align="center">
   <table>
@@ -11,7 +11,7 @@
     <th>
        
 
-<div align="center"><details> <summary>$\color{#F3E5AB}{\textsf{peanuts}}$ </summary> 
+<div align="center"><details> <summary>$\color{#ECFFDC}{\textsf{peanuts}}$ </summary> 
 <sub><a 
        
 <a href="https://github.com/slaughterwolf" target="_blank">wolf ♡</a>
