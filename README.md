@@ -5,6 +5,8 @@
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sensitiveptplayersfinnafreakwhentheyseethis)
 ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=fans&color=ECFFDC)
 
+[WOLF CALLOUT](https://rentry.co/slaughterwolfcallout)
+  
 <div align="center">
   <table>
   <tr>
@@ -29,5 +31,7 @@ $\color{#B5838D}{\textsf{ }}$
 <a href="https://github.com/unmannedcamera" target="_blank">roro</a>
 
  PLUS wen and all my greenames
+
+ㅤㅤ
 
 
