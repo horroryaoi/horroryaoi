@@ -6,8 +6,9 @@ $\small\color{#8E7DBE}{\textsf{cling}}$
 
 <p align="center"><img src="https://file.garden/amKtTawQyVZP6QLX/4086-removebg-preview.png" width="300">
 
-<p align="center">$\small\color{#F7CFD8}{\textsf{c * h freely}}$ $\small\color{#F4F8D3}{\textsf{usually in pub chat}}$
-$\small\color{#A6D6D6}{\textsf{bmf!!}}$
+<p align="center">$\small\color{#F7CFD8}{\textsf{c * h freely}}$ $\small\color{#F4F8D3}{\textsf{usually}}$
+ $\small\color{#A6D6D6}{\textsf{in pub chat}}$
+$\small\color{#8E7DBE}{\textsf{bmf!!}}$
 
 ㅤㅤ<p align="center">ㅤ[新book](https://mybrainirotting.atabook.org/)
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sensitiveptplayersfinnafreakwhentheyseethis)
