@@ -14,7 +14,7 @@ $\small\color{#A6D6D6}{\textsf{bmf!!}}$
 ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=8E7DBE&labelColor=8E7DBE&extraCount=935814)
 
 
-<img src="https://file.garden/amKtTawQyVZP6QLX/4087-removebg-preview.png" width="800">
+<img src="https://file.garden/amKtTawQyVZP6QLX/4087-removebg-preview.png" width="300">
 
 </details>
 <p align="center">
