@@ -13,7 +13,7 @@
   <details>
   <summary>my buddies</summary>
 
-[wolf](https://github.com/slaughterwolf)  [rin](https://github.com/scrsonmythighs)  [jaden](https://github.com/yubelsrevenge)  [sil](https://github.com/infugue)  [mike](https://github.com/rinsagi) [marji](https://github.com/yaoiliker) [wen](https://github.com/AshesOfHerHalo) + and all my greenames
+[wolf](https://github.com/slaughterwolf) [viss](https://github.com/coldatlantic)   [rin](https://github.com/scrsonmythighs)  [jaden](https://github.com/yubelsrevenge)  [sil](https://github.com/infugue)  [mike](https://github.com/rinsagi) + and all my greenames
 
 
 
