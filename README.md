@@ -1,8 +1,9 @@
 <p align="center">offtb mostly always in pub chat c * h freely bmf!!
 
 ㅤㅤ<p align="center">ㅤ[新book](https://mybrainirotting.atabook.org/)
-ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sensitiveptplayersfinnafreakwhentheyseethis)
-ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=ffb0b0&labelColor=8E7DBE&extraCount=935814)
+ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sensitiveptplayersfinnafreakwhentheyseethis) 
+
+ㅤ<p align="center">[ strawpage](https://jeckasmirror.straw.page/)ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=ffb0b0&labelColor=8E7DBE&extraCount=935814)
 
 [pt walk of fame](https://github.com/pt-walk-of-fame) [pt fashion](https://github.com/pt-fashion) [pt players](https://github.com/pt-players) [pt of awesomeness](https://github.com/pt-of-awesomeness) [title town](https://github.com/title-town) [pt nominations](https://github.com/pt-nominations) [pt achievements](https://github.com/ponychievements) [fans town](https://github.com/fans-town)
 
