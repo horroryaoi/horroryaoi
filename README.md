@@ -5,7 +5,7 @@
 
 ㅤ<p align="center">[ strawpage](https://jeckasmirror.straw.page/)ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=ffb0b0&labelColor=8E7DBE&extraCount=935814)
 
-[pt walk of fame](https://github.com/pt-walk-of-fame) [pt fashion](https://github.com/pt-fashion) [pt players](https://github.com/pt-players) [pt of awesomeness](https://github.com/pt-of-awesomeness) [title town](https://github.com/title-town) [pt nominations](https://github.com/pt-nominations) [pt achievements](https://github.com/ponychievements) [fans town](https://github.com/fans-town) [pt-friendships](https://github.com/pt-friendships) [pt stars](https://github.com/pt-players)
+[pt walk of fame](https://github.com/pt-walk-of-fame) [pt fashion](https://github.com/pt-fashion) [pt players](https://github.com/pt-players) [pt of awesomeness](https://github.com/pt-of-awesomeness) [title town](https://github.com/title-town) [pt nominations](https://github.com/pt-nominations) [pt achievements](https://github.com/ponychievements) [fans town](https://github.com/fans-town) [pt-friendships](https://github.com/pt-friendships) 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
