@@ -1,7 +1,8 @@
 <p align="center">offtb mostly always in pub chat c * h freely bmf!!
 
 ㅤㅤ<p align="center">ㅤ[新book](https://mybrainirotting.atabook.org/)
-ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/sensitiveptplayersfinnafreakwhentheyseethis) 
+ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/frat-leader)
+ 
 
 ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=ffb0b0&labelColor=8E7DBE&extraCount=935814)
 
