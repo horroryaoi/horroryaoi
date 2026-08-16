@@ -1,12 +1,27 @@
-<p align="center">offtb mostly always in pub chat c * h freely bmf!!
 
-ㅤㅤ<p align="center">ㅤ[新book](https://mybrainirotting.atabook.org/)
-ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/frat-leader)
+
+<p align="center"> ${\textsf{\color{#f38989} offtb}}$ ${\textsf{\color{#f2b4a3}or afk}}$  ${\textsf{\color{#ffdbc2} always in pub chat }}$  ${\textsf{\color{#c1cbb1} c+h freely }}$ ${\textsf{\color{#78c1a3} bmf }}$ 
+
+ㅤㅤ<p align="center">ㅤ[001](https://mybrainirotting.atabook.org/)
+ㅤㅤㅤㅤㅤ[002](https://rentry.co/frat-leader)
+
+
+ㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/9uvbam.png" width="400">
+
+ ${\textsf{\color{#f38989} I'm so}}$  ${\textsf{\color{#f2b4a3}anxious,}}$  ${\textsf{\color{#ffdbc2}so meet}}$  ${\textsf{\color{#c1cbb1}at }}$ ${\textsf{\color{#78c1a3}eleven-thirty}}$ 
+
+ ${\textsf{\color{#f38989}I love}}$ ${\textsf{\color{#f2b4a3}the way}}$  ${\textsf{\color{#ffdbc2}you're talkin'}}$ ${\textsf{\color{#c1cbb1}dirty, said, }}$  ${\textsf{\color{#78c1a3}I'm soooo anxious}}$
+ ㅤㅤㅤ
  
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[♡](https://github.com/coldatlantic) .. [♡](https://github.com/slaughterwolf)
+ㅤㅤ
+    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                                               ${\textsf{\color{#f38989}19 yo mlm}}$ㅤ  ${\textsf{\color{#f2b4a3}he him}}$ ${\textsf{\color{#ffdbc2}sp/sx 278}}$  ${\textsf{\color{#c1cbb1}esfp}}$ ${\textsf{\color{#78c1a3}7w6}}$ 
+    
+interests : whc funhouse aha + animes nd differ kdramas
 
-ㅤ <div align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=ffb0b0&labelColor=8E7DBE&extraCount=935814)
 
-[pt walk of fame](https://github.com/pt-walk-of-fame) [pt fashion](https://github.com/pt-fashion) [pt players](https://github.com/pt-players) [pt of awesomeness](https://github.com/pt-of-awesomeness) [title town](https://github.com/title-town) [pt nominations](https://github.com/pt-nominations) [pt achievements](https://github.com/ponychievements) [fans town](https://github.com/fans-town) [pt-friendships](https://github.com/pt-friendships) [pt cosplay](https://github.com/cosplaytown)
+
+
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -14,15 +29,21 @@
   </a>
 </p>
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤic : [@conncatt](https://x.com/conncatt) on x
 
 
-</details>
-<p align="center">
+ㅤ <p align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=ffb0b0&labelColor=8E7DBE&extraCount=935814)
+
+wipㅤI'll add more friends later
+----
+
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ</details>
  <br>
   <details>
-  <summary>my buddies</summary>
+  <summary>awards</summary>
+ 
+[pt walk of fame](https://github.com/pt-walk-of-fame) [pt fashion](https://github.com/pt-fashion) [pt players](https://github.com/pt-players) [pt of awesomeness](https://github.com/pt-of-awesomeness) [title town](https://github.com/title-town) [pt nominations](https://github.com/pt-nominations) [pt achievements](https://github.com/ponychievements) [fans town](https://github.com/fans-town) [pt-friendships](https://github.com/pt-friendships) [pt cosplay](https://github.com/cosplaytown)
 
-[wolf](https://github.com/slaughterwolf) [viss](https://github.com/coldatlantic)   [rin](https://github.com/scrsonmythighs)  [jaden](https://github.com/yubelsrevenge)  [sil](https://github.com/infugue)  [mike](https://github.com/rinsagi) + and all my greenames
 
 
 
