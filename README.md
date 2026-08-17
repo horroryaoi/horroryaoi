@@ -29,18 +29,18 @@ interests : whc funhouse aha + animes nd differ kdramas
   </a>
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤic : [@conncatt](https://x.com/conncatt) on x
+ㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/6yuiz8.png" width="400">
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤic : [@conncatt](https://x.com/conncatt) on x
 
 
 ㅤ <p align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=f38989&labelColor=8E7DBE&extraCount=935814)
 
- <br>
-  <details>
-  <summary>friends</summary>
-  hi rin, soap, nikk, jaden, sil, darcy, roro, william, Luna, raven, mike, vee, lucine, ren, emma, voxxie, kage, sharp, cat, mangle, vic, and juju
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
- <br>
+ <p align="center"> 
+  <br>
   <details>
   <summary>awards</summary>
  
