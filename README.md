@@ -15,7 +15,7 @@
  
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[♡](https://github.com/coldatlantic) .. [♡](https://github.com/slaughterwolf)
 ㅤㅤ
-    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                                               ${\textsf{\color{#f38989}19 yo mlm}}$ㅤ  ${\textsf{\color{#f2b4a3}he him}}$ ${\textsf{\color{#ffdbc2}sp/sx 278}}$  ${\textsf{\color{#c1cbb1}esfp}}$ ${\textsf{\color{#78c1a3}7w6}}$ 
+    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                                              ${\textsf{\color{#f38989}19 yo mlm}}$ㅤ  ${\textsf{\color{#f2b4a3}he him}}$ ${\textsf{\color{#ffdbc2}sp/sx 278}}$  ${\textsf{\color{#c1cbb1}esfp}}$ ${\textsf{\color{#78c1a3}7w6}}$ 
     
 interests : whc funhouse aha + animes nd differ kdramas
 
@@ -29,15 +29,17 @@ interests : whc funhouse aha + animes nd differ kdramas
   </a>
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤic : [@conncatt](https://x.com/conncatt) on x
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤic : [@conncatt](https://x.com/conncatt) on x
 
 
-ㅤ <p align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=ffb0b0&labelColor=8E7DBE&extraCount=935814)
+ㅤ <p align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=f38989&labelColor=8E7DBE&extraCount=935814)
 
-wipㅤI'll add more friends later
-----
+ <br>
+  <details>
+  <summary>friends</summary>
+  hi rin, soap, nikk, jaden, sil, darcy, roro, william, Luna, raven, mike, vee, lucine, ren, emma, voxxie, kage, sharp, cat, mangle, vic, and juju
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ</details>
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  <br>
   <details>
   <summary>awards</summary>
