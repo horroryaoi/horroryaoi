@@ -39,14 +39,7 @@ interests : whc funhouse aha + animes nd differ kdramas
 
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
- <p align="center"> 
-  <br>
-  <details>
-  <summary>awards</summary>
- 
-[pt walk of fame](https://github.com/pt-walk-of-fame) [pt fashion](https://github.com/pt-fashion) [pt players](https://github.com/pt-players) [pt of awesomeness](https://github.com/pt-of-awesomeness) [title town](https://github.com/title-town) [pt nominations](https://github.com/pt-nominations) [pt achievements](https://github.com/ponychievements) [fans town](https://github.com/fans-town) [pt-friendships](https://github.com/pt-friendships) [pt cosplay](https://github.com/cosplaytown)
-
-
+ㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/lbkyxd.png" width="600">
 
 
 
