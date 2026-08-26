@@ -13,7 +13,7 @@
  ${\textsf{\color{#f38989}I love}}$ ${\textsf{\color{#f2b4a3}the way}}$  ${\textsf{\color{#ffdbc2}you're talkin'}}$ ${\textsf{\color{#c1cbb1}dirty, said, }}$  ${\textsf{\color{#78c1a3}I'm soooo anxious}}$
  ㅤㅤㅤ
  
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[♡](https://github.com/coldatlantic) .. [♡](https://github.com/slaughterwolf)
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ .. [♡](https://github.com/slaughterwolf)
 ㅤㅤ
     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                                              ${\textsf{\color{#f38989}19 yo mlm}}$ㅤ  ${\textsf{\color{#f2b4a3}he him}}$ ${\textsf{\color{#ffdbc2}sp/sx 278}}$  ${\textsf{\color{#c1cbb1}esfp}}$ ${\textsf{\color{#78c1a3}7w6}}$ 
     
