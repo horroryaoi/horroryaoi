@@ -39,7 +39,6 @@ interests : whc funhouse aha + animes nd differ kdramas
 
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/lbkyxd.png" width="600">
 
 
 
