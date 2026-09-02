@@ -1,23 +1,25 @@
 
 
-<p align="center"> ${\textsf{\color{#f38989} offtb}}$ ${\textsf{\color{#f2b4a3}or afk}}$  ${\textsf{\color{#ffdbc2} always in pub chat }}$  ${\textsf{\color{#c1cbb1} c+h freely }}$ ${\textsf{\color{#78c1a3} bmf }}$ 
+<p align="center"> ${\textsf{\color{#B2D8CE} offtb}}$ ${\textsf{\color{#648DB3}or afk}}$  ${\textsf{\color{#5459AC} always in pub chat }}$  ${\textsf{\color{#52357B} c+h freely }}$ ${\textsf{\color{#52357B} bmf }}$ 
 
 ㅤㅤ<p align="center">ㅤ[001](https://mybrainirotting.atabook.org/)
 ㅤㅤㅤㅤㅤ[002](https://rentry.co/frat-leader)
 
 
-ㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/9uvbam.png" width="400">
+ㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/f3pas1.webp" width="430">
 
- ${\textsf{\color{#f38989} I'm so}}$  ${\textsf{\color{#f2b4a3}anxious,}}$  ${\textsf{\color{#ffdbc2}so meet}}$  ${\textsf{\color{#c1cbb1}at }}$ ${\textsf{\color{#78c1a3}eleven-thirty}}$ 
+ ${\textsf{\color{#B2D8CE} Lovers Together,}}$  ${\textsf{\color{#648DB3}I need her,}}$  ${\textsf{\color{#5459AC}I need her,}}$  ${\textsf{\color{#52357B}Ill feed her,}}$ ${\textsf{\color{#52357B}ill keep her}}$ 
 
- ${\textsf{\color{#f38989}I love}}$ ${\textsf{\color{#f2b4a3}the way}}$  ${\textsf{\color{#ffdbc2}you're talkin'}}$ ${\textsf{\color{#c1cbb1}dirty, said, }}$  ${\textsf{\color{#78c1a3}I'm soooo anxious}}$
+ ${\textsf{\color{#B2D8CE}Take some of this}}$ ${\textsf{\color{#648DB3}it'll calm you down}}$  ${\textsf{\color{#5459AC}you might as well}}$ ${\textsf{\color{#52357B}come around, }}$  ${\textsf{\color{#52357B}just come around}}$
  ㅤㅤㅤ
  
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[♡](https://github.com/coldatIantic) .. [♡](https://github.com/slaughterwolf)
 ㅤㅤ
-    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                                              ${\textsf{\color{#f38989}19 yo mlm}}$ㅤ  ${\textsf{\color{#f2b4a3}he him}}$ ${\textsf{\color{#ffdbc2}sp/sx 278}}$  ${\textsf{\color{#c1cbb1}esfp}}$ ${\textsf{\color{#78c1a3}7w6}}$ 
+    ㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/oxigjr.webp" width="200">ㅤㅤㅤㅤㅤㅤㅤ   <p align="center">ㅤ<img src="https://files.catbox.moe/yrd0ae.webp" width="200">
+       
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+${\textsf{\color{#B2D8CE}19yo mlm}}$    ${\textsf{\color{#648DB3}he him}}$ ${\textsf{\color{#5459AC}sp/sx 278}}$  ${\textsf{\color{#52357B}esfp}}$ ${\textsf{\color{#52357B}7w6}}$ 
     
-interests : whc funhouse aha + animes nd differ kdramas
 
 
 
@@ -29,13 +31,12 @@ interests : whc funhouse aha + animes nd differ kdramas
   </a>
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/6yuiz8.png" width="400">
+ㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/pyft6s.webp" width="400">
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤic : [@conncatt](https://x.com/conncatt) on x
 
 
-ㅤ <p align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=fans　&color=f38989&labelColor=8E7DBE&extraCount=935814)
+ㅤ <p align="center">![](https://komarev.com/ghpvc/?username=mybrainisrotting&style=flat-square&label=🐟&color=B2D8CE&labelColor=8E7DBE&extraCount=935814)
 
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
