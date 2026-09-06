@@ -17,19 +17,10 @@
 ㅤㅤ
     ㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/oxigjr.webp" width="200">ㅤㅤㅤㅤㅤㅤㅤ   <p align="center">ㅤ<img src="https://files.catbox.moe/yrd0ae.webp" width="200">
        
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-${\textsf{\color{#B2D8CE}19yo mlm}}$    ${\textsf{\color{#648DB3}he him}}$ ${\textsf{\color{#5459AC}sp/sx 278}}$  ${\textsf{\color{#52357B}esfp}}$ ${\textsf{\color{#52357B}7w6}}$ 
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\textsf{\color{#B2D8CE}19yo mlm}}$    ${\textsf{\color{#648DB3}he him}}$ ${\textsf{\color{#5459AC}sp/sx 278}}$  ${\textsf{\color{#52357B}esfp}}$ ${\textsf{\color{#52357B}7w6}}$ 
     
 
 
-
-
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=jimd.carr88&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffb0b0&bar_color_cover=false">
-  </a>
-</p>
 
 ㅤㅤㅤㅤㅤㅤㅤ<p align="center">ㅤ<img src="https://files.catbox.moe/pyft6s.webp" width="400">
 
