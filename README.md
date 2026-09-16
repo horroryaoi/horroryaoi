@@ -6,8 +6,3 @@
 
 <p align="center">if you'd like to text me if I don't have you on dc my user is mybrainizrotting, I will gladly accept enjoying company
 
-
-<p align="center">this is what I get for accepting pt friend requests. sos guys pls fucking sos I don't wanna match but I feel bad for blocking pls fucking help me I'm begging
-
-
-<p align="center"><p align="center">ㅤ<img src="https://files.catbox.moe/qr0hqt.png" width="600">
