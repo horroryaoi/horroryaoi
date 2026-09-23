@@ -1,4 +1,3 @@
-<div align="center">
-rmking everything lol also I don't play pt tahatt much anymore sorry
+<div align="center"><img src="https://files.catbox.moe/t8nrkn.png" width="500" align="center">
 
-c+h freely, i cuddle evb ok
+⠀ ⠀ ⠀     <p align="center">[♡](https://github.com/coldatIantic)
