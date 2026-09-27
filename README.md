@@ -1,3 +1,3 @@
-<img width="917" height="315" alt="7119" src="https://github.com/user-attachments/assets/7b8478e9-e4b0-4d07-893a-8c4eb8b1e777" />
+⠀ ⠀ ⠀     <p align="center">[me nd my handsome bf matching straw](https://tg4life.straw.page/)
 
-bye who you feeling like because i KNOW you arent harassing smb in their ata sending MULTIPLE msgs after you are POINTING out how they "harassed" ppl, whos the fucking hypocrite LOLLLL. Also, they have NEVER been rude to INNOCENT PEOPLE you might wna double check your friends because vee and mike only be mean to complete WEIRDOS and people who think they are better than everyone else. ALSOOO they are kids too?? LMAOO and MAJORITY of the people they are "lashing out" on are full fucking grown adults who are immature and cant get a life. So maybe next time before putting full bullshit on smbs ata to "help" them you get their side of the story instead of creating a "he said, she said" situation.
+ata, rentry, main straw still getting rmked
