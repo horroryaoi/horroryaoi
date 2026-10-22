@@ -7,4 +7,7 @@ ata, rentry, main straw still getting rmked ; c+h freely I sit w evb
 
 <p align="center"><img width="407" height="453" alt="image" src="https://github.com/user-attachments/assets/8792d070-85af-4c75-8236-8860d939fa73" />
 
-<p align="center"><img width="554" height="99" alt="Screenshot 2026-10-21 8 21 09 PM" src="https://github.com/user-attachments/assets/41c49419-4231-436a-a6bf-f87f002388d2" />
+<p align="center"><img width="599" height="311" alt="Screenshot 2026-10-21 8 24 02 PM" src="https://github.com/user-attachments/assets/8c6f68e0-0923-42f9-b9aa-e0b9bc3be6f3" />
+  ⠀ ⠀ ⠀     <p align="center"> #toxic #helpme #lovemyswifties #smolbean
+
+
