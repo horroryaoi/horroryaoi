@@ -11,8 +11,7 @@
 <details>
   <summary><small>hi</summary>
   <p></p>
-   <a href="coldatIantic
-"><sub>boyfriend</sub></a>       
+   <a href="https://github.com/coldatIantic"><sub>boyfriend</sub></a>       
    ㅤ<a href="https://github.com/deepaffection"><sub>niko</sub></a>       
    ㅤ<a href="https://github.com/tirgery123"><sub>wumble</sub></a>      
    ㅤ<a href="https://github.com/yaoiliker"><sub>raven</sub></a>ㅤ<sub>#besties</sub>
