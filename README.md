@@ -2,3 +2,21 @@
 <img src="https://file.garden/ap93tmdTkSJHvURz/HVZAIvebwAAAVij.jpeg" width="200" align="center">
   
 <sub><a href="https://mybrainirotting.atabook.org/" target="_blank">ata</a>  <a href="https://madnessoflove.straw.page/" target="_blank">strawpage</a> 
+
+  <p></p>
+<p></p>
+ㅤ
+<div align="center">
+ 
+<details>
+  <summary><small>hi</summary>
+  <p></p>
+   <a href="coldatIantic
+"><sub>boyfriend</sub></a>       
+   ㅤ<a href="https://github.com/deepaffection"><sub>niko</sub></a>       
+   ㅤ<a href="https://github.com/tirgery123"><sub>wumble</sub></a>      
+   ㅤ<a href="https://github.com/yaoiliker"><sub>raven</sub></a>ㅤ<sub>#besties</sub>
+  
+ㅤㅤ<a href="https://github.com/scrsonmythighs"><sub>rin</sub></a>ㅤ<a href="https://github.com/TEARY-EYED"><sub>darcy</sub></a>ㅤ<a href="https://github.com/antlerqueen"><sub>lex</sub></a>ㅤ<a href="https://github.com/infugue"><sub>sil</sub></a>ㅤ<a href="https://github.com/yubelsrevenge"><sub>jaden</sub></a>ㅤ<a href="https://github.com/bIackbirds"><sub>remy</sub></a>ㅤ<a href="https://github.com/moonloverr"><sub>nikk</sub></a>ㅤ<a href="https://github.com/piehiker"><sub>tes</sub></a>ㅤ<a href="https://github.com/yvoisen"><sub>yvo</sub></a>ㅤ<a href="https://github.com/jokechi"><sub>vee</sub></a>ㅤ<a href="https://github.com/rinsagi"><sub>mike</sub></a>ㅤ<sub>  + evb in my friendlist</sub>
+</details>
+ㅤ
