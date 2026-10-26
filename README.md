@@ -17,7 +17,7 @@
    ㅤ<a href="https://github.com/tirgery123"><sub>wumble</sub></a>      
    ㅤ<a href="https://github.com/yaoiliker"><sub>raven</sub></a>ㅤ<sub>#besties</sub>
   
-ㅤㅤ<a href="https://github.com/scrsonmythighs"><sub>rin</sub></a>ㅤ<a href="https://github.com/TEARY-EYED"><sub>darcy</sub></a>ㅤ<a href="https://github.com/antlerqueen"><sub>lex</sub></a>ㅤ<a href="https://github.com/infugue"><sub>sil</sub></a>ㅤ<a href="https://github.com/yubelsrevenge"><sub>jaden</sub></a>ㅤ<a href="https://github.com/bIackbirds"><sub>remy</sub></a>ㅤ<a href="https://github.com/moonloverr"><sub>nikk</sub></a>ㅤ<a href="https://github.com/piehiker"><sub>tes</sub></a>ㅤ<a href="https://github.com/yvoisen"><sub>yvo</sub></a>ㅤ<a href="https://github.com/jokechi"><sub>vee</sub></a>ㅤ<a href="https://github.com/rinsagi"><sub>mike</sub></a>ㅤ
+ㅤㅤ<a href="https://github.com/scrsonmythighs"><sub>rin</sub></a>ㅤ<a href="https://github.com/TEARY-EYED"><sub>darcy</sub></a>ㅤ<a href="https://github.com/antlerqueen"><sub>lex</sub></a>ㅤ<a href="https://github.com/infugue"><sub>sil</sub></a>ㅤ<a href="https://github.com/yubelsrevenge"><sub>jaden</sub></a>ㅤ<a href="https://github.com/bIackbirds"><sub>remy</sub></a>ㅤ<a href="https://github.com/moonloverr"><sub>nikk</sub></a>ㅤ<a href="https://github.com/DOR-fic"><sub>dorfic</sub></a>ㅤ<a href="https://github.com/yvoisen"><sub>yvo</sub></a>ㅤ<a href="https://github.com/jokechi"><sub>vee</sub></a>ㅤ<a href="https://github.com/rinsagi"><sub>mike</sub></a>ㅤ
 <sub>  + evb in my friendlist</sub>
 
 <img src="https://file.garden/ap93tmdTkSJHvURz/Screenshot%202026-10-25%207.32.11%20PM.png" width="200" align="center">
