@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://file.garden/ap93tmdTkSJHvURz/HVZAIvebwAAAVij.jpeg" width="200" align="center">
+<img src="https://file.garden/ap93tmdTkSJHvURz/HNzQQeva0AATFMo-removebg-preview.png" width="300" align="center">
 
   
 <sub><a href="https://mybrainirotting.atabook.org/" target="_blank">ata</a>  <a href="https://listography.com/1358321045" target="_blank">listo</a> 
@@ -10,7 +10,7 @@
 <div align="center">
  
 <details>
-  <summary><small>hi</summary>
+  <summary><small><sub>moots</sub></summary>
   <p></p>
    <a href="https://github.com/coldatIantic"><sub>boyfriend</sub></a>       
    ㅤ<a href="https://github.com/deepaffection"><sub>niko</sub></a>       
