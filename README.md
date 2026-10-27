@@ -6,7 +6,7 @@
   
 <sub><a href="https://mybrainirotting.atabook.org/" target="_blank">ata</a>  <a href="https://listography.com/1358321045" target="_blank">listo</a> 
 
-thats #embarassing
+thats #embarrassing
   <p></p>
 <p></p>
 ㅤ
