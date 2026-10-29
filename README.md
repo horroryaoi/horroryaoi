@@ -24,6 +24,8 @@
 
 <img src="https://file.garden/ap93tmdTkSJHvURz/Screenshot%202026-10-25%207.32.11%20PM.png" width="200" align="center">
 
+
+
 <a href="https://github.com/sokizsp4ceship"><sub>soki</sub></a> <a href="https://github.com/lokeean"><sub>yves</sub></a> <a href="https://github.com/TEARY-EYED"><sub>darcy</sub></a> <sub>♡</sub>
 </details>
 ㅤ
